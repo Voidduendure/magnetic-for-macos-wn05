@@ -1,4 +1,4 @@
-
+Enhance Magnetic for macOS with Magnetic for macOS instant Addon: file-archiving & virtualization, the #1 addon. Includes file-archiving and virtualization for a smoother macOS
 
 
 
